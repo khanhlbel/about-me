@@ -23,6 +23,7 @@ i like 🥳 :
  * Natsuki
  * Dolia (AOV)
  * Phở 🤤
+   
 i dont like 🥶 :
  * yaoi
  * boylove (im not homophobic!)
@@ -30,15 +31,19 @@ i dont like 🥶 :
  * donut
  * oysters
  * yaoi (sorry)
+   
 13/7/2010 🎂 (im minor)
+
 i go by:
  * Khanh (Ill hug you if you call me that 😳) 
  * Khanhlbel
  * popcorn
  * snow
+   
 pronouns:
  * he/him
  * im a boy dont misgender me
+   
 im 
  *im straight
  *im ok with shipping i think
@@ -47,7 +52,7 @@ im
  * I like to joke around (I think I'm the only one who laughs at my jokes)
  * If you're offended by my joke, just tell me
  * I LIKE SPOKE 
- 😳
+ 
 my fandoms:
  * doki doki literature club!
  * omori
