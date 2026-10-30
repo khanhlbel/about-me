@@ -46,10 +46,11 @@ pronouns:
  * im a boy dont misgender me
    
 im 
- *im straight
- *im ok with shipping i think
- *im not good at communicating
- *I say whatever comes to mind, so some things might be a bit tactless. If you're annoyed or dont like it, tell me ill shut up immediately.
+
+ * im straight
+ * im ok with shipping i think
+ * im not good at communicating
+ * I say whatever comes to mind, so some things might be a bit tactless. If you're annoyed or dont like it, tell me ill shut up immediately.
  * I like to joke around (I think I'm the only one who laughs at my jokes)
  * If you're offended by my joke, just tell me
  * I LIKE SPOKE 
