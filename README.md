@@ -11,7 +11,7 @@ my game account:
    
 i like 🥳 :
  * cats
- * chicken or Lily (get the reference)
+ * chicken 
  * Spoke
  * noodles
  * devious duo
