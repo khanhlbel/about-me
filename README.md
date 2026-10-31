@@ -6,7 +6,7 @@ my social media
  * X: duachuaxao
 
 my game account:
- * Roblox: nguoibelgoivon
+ * Roblox: nguoibelgoivon (I dont play Roblox very much, but if you want, Ill play with you)
  * AOV: khanhlbel (in case you are Vietnamese heheh)
    
 i like 🥳 :
