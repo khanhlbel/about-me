@@ -27,11 +27,13 @@ i like 🥳 :
    
 i dont like 🥶 :
  * yaoi
- * boylove (im not homophobic!)
+ * yaoi
  * worm
  * donut
+ * yaoi
  * oysters
  * yaoi (sorry)
+ * yaoi 
    
 13/7/2010 🎂 (im minor)
 
@@ -50,6 +52,9 @@ im
  * im straight
  * im ok with shipping i think
  * im not good at communicating
+   
+i
+
  * I say whatever comes to mind, so some things might be a bit tactless. If you're annoyed or dont like it, tell me ill shut up immediately.
  * I like to joke around (I think I'm the only one who laughs at my jokes)
  * If you're offended by my joke, just tell me
