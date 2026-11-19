@@ -12,16 +12,6 @@ my game account:
 i like 🥳 :
  * cats
  * chicken 
- * Spoke
- * noodles
- * devious duo
- * patchbreakers duo
- * havoc duo
- * orbital duo
- * eggchan 
- * chips 😋
- * Monika
- * Natsuki
  * Dolia (AOV)
  * Phở 🤤
  * Biao Ge (Chu xin diao)
@@ -62,7 +52,6 @@ i
  * I say whatever comes to mind, so some things might be a bit tactless. If you're annoyed or dont like it, tell me ill shut up immediately.
  * I like to joke around (I think I'm the only one who laughs at my jokes)
  * If you're offended by my joke, just tell me
- * I LIKE SPOKE
  * top 1 fan ccvc mấy thg ất cay chan t ok
 
  
@@ -70,7 +59,6 @@ my fandoms:
  * doki doki literature club!
  * omori
  * AOV
- * unstable universe
  * bouzuu fandom
  * chu xin diao
 
